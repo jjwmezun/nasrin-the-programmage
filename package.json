@@ -1,0 +1,14 @@
+{
+  "name": "nasrin-the-programmage",
+  "version": "0.1.0",
+  "description": "",
+  "main": "index.js",
+  "scripts": {
+    "server": "node index.js"
+  },
+  "author": "J. J. W. Mezun",
+  "license": "GPL-3.0-or-later",
+  "dependencies": {
+    "mezuntext": "^0.1.0"
+  }
+}
