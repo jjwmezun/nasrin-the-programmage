@@ -11,3 +11,35 @@ If Nasrin were an ordinary person, they would’ve drowned soon after. For once 
 As the water dried & dripped out o’ their eyes, they gradually regained the ability to see & saw before them a wide-open ocean — albeit one with a dank pewter cast rather than blue.
 
 { ¿Now what? }.
+
+After so many stressful work nights that summer, Nasrin had become so fizzled in the mind that they spent hours o’ their day off staring @ ocean tides on online image searches, when it sprouted into their mind the extreme idea o’ going to an authentic beach to watch authentic tides.
+
+{ That’s crazy & wasteful — & with so li’l time left on this tender earth. You’ll ne’er finish the script to that 1000-page webcomic @ this rate }.
+
+{ I’m not finishing it now, anyway. It’s hopeless as hopeless is. ’Sides, the trip might give me ideas }.
+
+{ It’ll give me extra bus trips to mess & stress up o’er }.
+
+But the siren song o’ the ocean called them, e’en from kilometers ’way, & they found themself too hopped up on the sugar o’ their final day off to focus on anything; so they showered & dressed as if they were going on a date with the lake & the sand, held their breath for the 10 minutes they waited till ’twas time to go out & wait for the bus, & then passed out from lack o’ oxygen.
+
+After waking back up, they then waited for the next bus. ’Twas then that they saw the sky sprinkling full o’ rain, while they were outside in just a T-shirt, shorts, & sandals.
+
+{ ¿See? Look @ how complicated outside is already. Should’ve stuck with practicing Clojure }.
+
+But they was paranoid ’bout missing the bus while taking the trouble to dig out their house key under their ziplock bag o’ cards, change, & GBA cartridges.
+
+{ Fuck it. If I change, it’ll probably just become as hot as a desert later on, anyway. ’Sides, it’s rather refreshing }, they thought as they hugged their knees & bit their lips, shaking all o’er like a chihuahua who ate a can o’ coffee beans.
+
+Nasrin continued to shiver; but now they were shivering in front o’ the tides, while they felt sand chunky with wetness creep into their sandles & splay under their outstretched hands. { But I’m not wasting this trip }. So they stayed sitting there, staring closely @ the tangoing triangles o’ the ocean’s skin, & sometimes the gray smudge o’ some mountains gainst the other gray sky, while ignoring the wind shoving their bangs all o’er their face.
+
+Then they felt the thin Styrofoam o’ their sandals become soggy like sponges & looked down to see just how far the ocean’s arms were reaching. She stood & stepped back, only for the edge o’ the sea to slosh forward in a giant leap, spreading so far that they could feel its icy grip on their ankles.
+
+Twisting ’way was worthless: the tides’ diamond-strong grip yanked them down with a painful whack on the sharp seashells & dragged them into the wide stomach o’ the seas.
+
+That was when they learned that heaven was not a sky, but an ocean; not empty & raw to all, but a soft-all-o’er ne’er-ending embrace.
+
+Nasrin stared up the craggy cliff walls sandwiching them & thought that the most reasonable action next would be to climb back up, which would hopefully be safer & easier in water than in air. They could feel a light but cold film touching them on all sides @ all times, a soft hand brushing them on the shoulder here, the leg there, while what felt like a much different weight pulled down e’ery wrinkle o’ e’ery fabric on them as if trying to take them all off, a cold clamminess seductively touching e’ery part o’ their flesh intimately. Tho the bubble was still round their head, refining the oxygen hidden ’mong the hydrogen surrounding them into a kind compatible with their lungs, they still felt a breathless stress spread o’er their chest. Nasrin began to feel themself add their own water to the great mass — tho which o’ the 2 suspects, Nasrin themself couldn’t discern.
+
+Nasrin reached a hand out to the wall in front o’ them, feeling its rounded bumps, smooth like plastic in its eternal lubrication. They stepped forward & lifted a leg, surprised by how easy ’twas. Howe’er, while they could jump up a few centimeters off a lower crag, they continued to fall back down hereafter, albeit in slowmo; & e’ery time they tried to grab a higher crag, her fingers would slip right off with a slightly rough burn, & they would fall back down to their backmost foot.
+
+A terror drilled into their chest till they began to leak tears from their eyes. Thinking o’ how their bubble protected them from death probably wouldn’t last fore’er, Nasrin already began to feel as if they were drowning, as if the waters were choking them, squeezing their heart to a bloody spill.
