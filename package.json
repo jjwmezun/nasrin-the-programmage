@@ -9,6 +9,6 @@
   "author": "J. J. W. Mezun",
   "license": "GPL-3.0-or-later",
   "dependencies": {
-    "mezuntext": "^0.1.0"
+    "mezuntext": "^0.2.0"
   }
 }
